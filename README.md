@@ -26,7 +26,7 @@ eye-catching visuals—I love turning ideas into polished digital experiences.
 
 ## 🌟 Let’s Connect!
 
-Check out some of my projects below or connect with me on [LinkedIn](www.linkedin.com/in/fredrina-saldanha-b512852a2).
+Check out some of my projects below or connect with me on [LinkedIn](https://www.linkedin.com/in/fredrina-saldanha-b512852a2).
 I'm always open to learning, building, and bringing creativity into code.
 
 ---
